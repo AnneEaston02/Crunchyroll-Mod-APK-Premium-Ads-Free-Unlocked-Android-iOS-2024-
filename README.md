@@ -1,4 +1,4 @@
-# Crunchyroll Mod Apk (Ads Free, All Premium Unlocked) 2024
+# Crunchyroll Mod Apk (Ads Free, All Premium Unlocked) Android and iOS 2024
 Crunchyroll Mod Apk 2024 offers an ad-free experience with all premium content unlocked, enhancing anime streaming on Android/iOS.
 
 **Download Link**: [Download Crunchyroll Premium APK](https://expertoapk.com/crunchyroll-premium-apk/)
